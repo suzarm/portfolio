@@ -26,6 +26,6 @@ Track your daily mood using emojis and add a note explaining why you feel that w
 
 
 ## Self-Presentation Video 
-Watch my introduction video:
+Watch my introduction video:https://youtube.com/shorts/qC7M8tu6UiM?si=wbULFxDaBuK73DwW
 
 
